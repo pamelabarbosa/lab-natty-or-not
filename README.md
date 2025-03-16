@@ -14,7 +14,7 @@ Usei o "ChatGPT" para escrever e revisar o roteiro do vídeo, o "D-ID" para a cr
 
 
 ## 🚀 Resultados
-O vídeo é um vídeo educativo de como ter mais segurança na era da inteligência virtual.
+O vídeo é um vídeo educativo de como ter mais segurança na era da inteligência artificial.
 
 **[LINK](https://www.youtube.com/shorts/Lgj27Qeu9To)**
 
